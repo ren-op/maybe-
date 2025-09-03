@@ -1,2 +1,2 @@
 # goodbye
-"i hope you live a good life"
+i can't move on, you know
